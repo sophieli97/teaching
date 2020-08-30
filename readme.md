@@ -4,7 +4,7 @@ EC304 discussion session runs on Friday from 10:10 - 11 am. The discussion sessi
 
 Under BU regulations, students rotate between in-person and online classes. Please only come to in-person classes when it is your turn (rotation roster can be found on Blackboard). Surgurical masks and a green badge showing that you are up to date with your COVID testing and you do not have any symptoms are both required. 
 
-#### Not wearing a sugurgical mask or not complying with university COVID guidelines makes you ineligbile to attend in-person classes. You will not be permitted to enter the classroom. There is no penalty in attending classes remotely. You are encouraged to attend classes remotely if you just went to a large gathering, missed a scheduled testing, or having any symptoms.
+#### Not wearing a surgical mask or not complying with university COVID guidelines makes you ineligbile to attend in-person classes. You will not be permitted to enter the classroom. There is no penalty in attending classes remotely. You are encouraged to attend classes remotely if you just went to a large gathering, missed a scheduled testing, or having any symptoms.
 
 ## Other logistics
 
